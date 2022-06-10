@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kenyanfury
+- 👋 Hi, I’m Roy Wanderi 
 - 👀 I’m interested in Football and Video games
 - 🌱 I’m currently learning Cyber security
 - 💞️ I’m looking to collaborate with Youtube
